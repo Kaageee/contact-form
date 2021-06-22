@@ -6,6 +6,6 @@
 
 ## What's this ?
 
-This is a simple design for your contact form. This form is not fonctional but if you want to make it, add me on discord and i can help you. Kaageee#9058.
+This is a simple design for your contact form. This form is not fonctional but if you want to make it, add me on discord and i can help you. Kaageee#1111.
 
 
